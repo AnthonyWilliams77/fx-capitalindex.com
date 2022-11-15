@@ -1,0 +1,1 @@
+# fx-capitalindex.com
